@@ -6,9 +6,11 @@
 
 💞️ I’m looking to collaborate on open-source projects related to design systems and user interfaces.
 
-📫 How to reach me: [Insert your contact information or social media links here]
+📫 How to reach me: You can reach me on my instagram account or my message me directly on my whatsapp no 
+  Instagram: @codifycrafts
+  whatsapp NO: +92348-9649398
 
-😄 Pronouns: He/Him
+😄 Pronouns: He
 
 ⚡ Fun fact: I'm passionate about photography and love capturing candid moments.
 
